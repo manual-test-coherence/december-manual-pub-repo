@@ -1,0 +1,1 @@
+# december-manual-pub-repo
